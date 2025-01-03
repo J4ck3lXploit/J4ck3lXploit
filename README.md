@@ -2,5 +2,6 @@
 🚀 Aspiring Penetration Tester  
 🏴‍☠️ CTFs | Hack The Box | Cybersecurity Enthusiast  
 💻 Always learning, always hacking  
+🎮 Gamer and chess enthusiast.
 
 
